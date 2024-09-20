@@ -2,6 +2,12 @@ Gameplay video:
 
 https://youtu.be/7FlDaIvZnko
 
+Android APK:
+
+https://drive.google.com/drive/folders/1ccpy2Ps_qi0ulN7Qs4q_NKnj4ZXWHMe5?usp=drive_link
+
+
+
 
 
 
