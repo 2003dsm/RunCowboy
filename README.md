@@ -1,3 +1,3 @@
-Link to Google Play:
+Gameplay video:
 
-https://play.google.com/store/apps/details?id=com.vidid.vaquero&gl=ES
+https://youtu.be/7FlDaIvZnko
